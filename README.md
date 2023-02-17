@@ -1,0 +1,2 @@
+# padirege
+Mavi tik
